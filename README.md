@@ -1,7 +1,8 @@
 <h2>磁力搜索导航大全 - 常用的BT磁力搜索链接下载网站</h2>
 <p>磁力搜索导航是一种专门用于搜索和索引磁力链接的在线平台，其主要功能是帮助用户快速找到所需的下载资源，如电影、电视剧、音乐、软件、电子书等。这类网站通过整合全网资源，利用先进的搜索算法，让用户能够高效地获取各种类型的文件资源。</p>
-<p><strong>一键访问：</strong><a href="https://www.litxdh.com/favorites/cilisousuo.html"><strong>磁力搜索导航最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力搜索导航最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
 <p><strong>全网资源整合</strong>：涵盖高清影视、音乐、软件、电子书等多种类型资源，无论是最新上映的电影还是经典老剧，都能轻松找到。</p>
